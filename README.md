@@ -10,5 +10,5 @@
 -           Whatsapp:   +905466458474
 -    You can always write to me.         
 - 😄 Pronouns: Mr.
-- ⚡ Fun fact: I am ready to work for free for one month as a developer in a company.(C++ prefered)
+- ⚡ Fun fact: I am ready to work for free for one month as a developer in a company.(C++ prefered) (Zero USD salary for the first month! Just write to me). 
 -->
